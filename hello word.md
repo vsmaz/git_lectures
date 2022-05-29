@@ -1,9 +1,9 @@
-There was a young person of Ayr,
+There was a young rustic named Mallory,
 
-Whose head was remarkably square:
+who drew but a very small salary.
 
-On the top, in fine weather,
+When he went to the show,
 
-She wore a gold feather;
+his purse made him go
 
-Which dazzled the people of Ayr.
+to a seat in the uppermost gallery.
